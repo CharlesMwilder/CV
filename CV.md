@@ -53,3 +53,5 @@ Je suis motivé par les multiples façons dont je peux contribuer à ces deux pa
 - Pilotage d'avion
 - Les échecs - ligue nationale 4
 - Plongée sous-marine
+
+**LinkedIn:** [Charles Mickleburgh](https://www.linkedin.com/in/charles-mickleburgh-290463195)
